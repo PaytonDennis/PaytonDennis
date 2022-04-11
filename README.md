@@ -1,4 +1,4 @@
 　　　　　　　　　　　　    　      　　　　　        　　    Payton Dennis
  
-                                                  linkedin.com/in/payton-dennis/
+                                                linkedin.com/in/payton-dennis/
                                                              ‍
